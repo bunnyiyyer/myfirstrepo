@@ -1,5 +1,3 @@
-hi java is hte 
-  programing language
-  where we can fot he 
-  hava rebhgiyw
-  
+hih theiis hte things ding 
+ehere we can he 
+the java is hte program
